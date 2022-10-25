@@ -13,6 +13,9 @@
 
 # Fontes de dados
 https://www.revistari.com.br/245/1647#:~:text=Desde%20o%20in%C3%ADcio%20da%20pandemia,frente%20ao%20final%20de%202019.
+
 https://negociossc.com.br/noticia/pandemia-acelera-a-transformacao-no-mercado-financeiro/
+
 https://www.poder360.com.br/conteudo-patrocinado/mercado-de-capital-cresce-e-reinventa-relacoes-com-investidores/#:~:text=H%C3%A1%205%20anos%2C%20o%20n%C3%BAmero,segundo%20relat%C3%B3rio%20trimestral%20da%20B3.
+
 perfis de instagram como @bruno_perini, @thiago.nigro e @finclass_grupoprimo
